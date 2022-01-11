@@ -2,10 +2,10 @@
 
 
 
-* Valeu Otávio Reis, suas aulas foram bastante dinâmicas, com conteúdo objetivo e deu para aprender muito bem!
+* Valeu Otávio Reis, suas aulas foram bastante dinâmicas, com conteúdo objetivo e clareza na transmissão.
 
   
 
-  Que você continue sendo este profissional que é!  Abraço
+ Que você continue sendo este profissional que é, abraço!
 
   
